@@ -1,0 +1,1 @@
+# practikal-6.
